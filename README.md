@@ -1,0 +1,1 @@
+Od dziecka aktywnie rozwijam swoje umiejętności plastyczne z wykorzystaniem różnych materiałów (farby olejne, akrylowe, akwarelowe, grafika, glina, włóczka). Uwielbiam chodzić na zajęcia dodatkowe oraz kreować w domu. To daje mi głębokie zrozumienie kompozycji, operowania światłocieniem i budowania nastroju kolorem. Najczęściej rysuję martwą naturę i postacie.
